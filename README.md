@@ -1,0 +1,10 @@
+# https://dibyas98.github.io/Tailwind-major-project/dist/
+![1](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/1247cb39-5134-4d20-9499-700b9f78c810)
+![2](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/c6d5486f-5527-47ef-a86f-12d61d75ac6c)
+![3](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/3e2abf3d-83d0-4eba-855c-e30104521641)
+![4](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/280e200e-a070-4720-bc46-2493302b1463)
+![5](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/8a905115-540a-4f08-a931-885e292f54e6)
+![6](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/0a69dbea-0db4-438c-802e-4559f70212f3)
+![7](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/7ac3cb16-ec94-4d2a-9a46-2934623d3ecc)
+![8](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/60d5ca3c-3785-4523-997a-6ba98d9c6894)
+![9](https://github.com/Dibyas98/Tailwind-major-project/assets/125633895/e678bbdc-679e-4f92-99d3-0036ee6adcfe)
